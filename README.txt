@@ -1,2 +1,2 @@
-"Địa ngục chưa bỏ không, thề chưa thành Phật quả
-Chúng sinh khi độ hết, mới chứng đạo Bồ Đề."
+“In my days of glory, all came to greet me on my way;
+When my colors fell, the same old roads remained, but the streets lay bare.”
